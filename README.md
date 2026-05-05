@@ -1,2 +1,2 @@
-# Shanika145.github.io
+# Shanika145
 MY PERSONAL PORTFOLIO WEBSITE
